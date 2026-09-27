@@ -1,0 +1,1 @@
+# cacheSolidarity-assets
